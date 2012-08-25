@@ -13,7 +13,7 @@ Brought to you by
 
 THE AUSTRALIAN-CANADIAN COMMONWEALTH FRIENDSHIP ASSOCIATION (ACCFA)
 aka
-Andrew Nesbit (The Echo Nest)
++ Andrew Nesbit (The Echo Nest)
 + Matthew Ogle (This Is My Jam)
 
 -and-
